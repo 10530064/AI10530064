@@ -1,2 +1,7 @@
 # AI10530064
 AI10530064
+
+XIAO HONG BIN
+蕭弘斌
+
+I am from Taichung.
